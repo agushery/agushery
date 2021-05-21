@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @Agusherysetiawan
+# 👋 Hi, I’m @Agushery
 
 - 🔭 I’m currently studying on Institut Teknologi dan Bisnis STIKOM BALI (6th semester)
 - 🌱 I’m interesting with  Data Science, Machine Learning, Deep Learning, Data Visualization, Big Data
