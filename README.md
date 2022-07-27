@@ -2,5 +2,5 @@
 
 - 📫 How to reach me: 
     * Email     : agushery608@gmail.com
-    * Instagram : https://www.instagram.com/agusheryse/
+    * Linkedin : https://www.linkedin.com/in/agusherysetiawan/
 - 😄 Pronouns: English, Bahasa
